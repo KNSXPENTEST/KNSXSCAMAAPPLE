@@ -1,3 +1,3 @@
-#KNSX SCAMA APPLE ID/CRYPTOCB
+#KNSXSCAMAAPPLEID/CRYPTOCB
 
 A complete Scama Apple download it for Spamm4r :)
